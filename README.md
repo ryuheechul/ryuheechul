@@ -27,6 +27,8 @@ I:
 
 - **appreciate** what you've done for us
 
+- **admit** current limits and weaknesses of mine
+
 - **challenge** to explore further than current limits
 
 - **improve** environments for better opportunities and safeties
