@@ -23,6 +23,10 @@ I:
 
 - **participate** to build a better community
 
+- **admire** great works from who were before us
+
+- **appreciate** what you've done for us
+
 - **challenge** to explore further than current limits
 
 - **improve** environments for better opportunities and safeties
